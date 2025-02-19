@@ -1,4 +1,14 @@
 # plantas-interior-nombre
 
 PLANTAS DE INTERIOR SON MUY BONITAS
+
+POTO
+
+MENTA
+
+CINTA
+
+ASPIDISTRA
+
+TILLANDSIA
  
